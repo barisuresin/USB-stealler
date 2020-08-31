@@ -1,3 +1,3 @@
 # USB-stealler
 By BarisUres
-İletişim: http://barisures.com/
+İletişim: https://barisures.com/
